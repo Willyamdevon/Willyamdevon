@@ -2,7 +2,7 @@
 - 👀 I’m interested in Python, JavaScript, web technologies
 - 💞️ I’m looking to collaborate on websites and Python
 - 📫 How to reach me: Discord: @kostytarass
-- 🐱 My last account (but without work projects (only files), because I had problems with my computer): https://github.com/LordKin2001
+- 🐱 My last account (but without work projects (only files)): https://github.com/LordKin2001
 
 
 I know 🌏:
