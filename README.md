@@ -4,16 +4,12 @@
 - 📫 How to reach me: Discord: @kostytarass
 
 I know 🌏:
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/7f496fcf-4867-4122-8a67-d00f6e31507f)
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/7576bd4f-e1b8-4924-8781-e32ea73214ba)
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/46a48e73-831d-441d-ac87-6fa2185afea1
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/4a27b7f8-6dbc-4326-8398-6ec4be765959)
+![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/374305eb-c29a-45ac-a87e-1d4ccc181c1c)
+
 
 I study 🏫:
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/7f496fcf-4867-4122-8a67-d00f6e31507f)
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/7576bd4f-e1b8-4924-8781-e32ea73214ba)
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/f517b16e-3eaf-4dfd-b68f-71e76098bfad
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/d51ea014-2da8-478c-940b-fa580e52b701)
+![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/5df57a0d-c125-4199-be07-87ca42a991c0)
+
 
 
 <!---
