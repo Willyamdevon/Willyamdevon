@@ -18,6 +18,7 @@ I study 🏫:
 
 ![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/5df57a0d-c125-4199-be07-87ca42a991c0)
 
+I have been using WakaTyime since 16.04.2024
 [![my wakatime stats](https://github-readme-stats.vercel.app/api/wakatime?username=konsirovar&theme=radical)](https://wakatime.com/@konsirovar) 
 
 <!---
