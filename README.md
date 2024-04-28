@@ -10,16 +10,14 @@ My best project Py.study was started on this account 🔝
 I know 🌏:
 
 
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/6eadfb41-a699-4646-9284-de8677841dad)
-
-
+![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/c9a3bc75-8269-43ba-8fd5-f5bc0ffbfb4d)
 
 
 
 I study 🏫:
 
 
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/112aeead-7b6b-424d-8a80-1d6f77d83207)
+![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/f1aa7237-7f82-4e06-b717-9790b04c55ef)
 
 
 I have been using WakaTyime since 16.04.2024
