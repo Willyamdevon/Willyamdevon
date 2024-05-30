@@ -17,7 +17,8 @@ I know 🌏:
 I study 🏫:
 
 
-![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/f1aa7237-7f82-4e06-b717-9790b04c55ef)
+![image](https://github.com/Willyamdevon/Willyamdevon/assets/151402518/7dd6e81f-156b-445b-9e39-aa1cca9b80b2)
+
 
 
 I have been using WakaTyime since 16.04.2024
