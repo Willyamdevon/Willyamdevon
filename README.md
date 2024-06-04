@@ -3,7 +3,6 @@
 - 💞️ I’m looking to collaborate on websites and Python
 - 📫 How to reach me: Discord: @kosty_golang
 - 🐱 My last account (but without work projects (only files)): https://github.com/LordKin2001
-My best project Py.study was started on this account 🔝
 
 
 
