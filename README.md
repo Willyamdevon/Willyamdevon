@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Kosty
-- 👀 I’m interested in Python, JavaScript, web technologies
-- 💞️ I’m looking to collaborate on websites and Python
+- 👀 I’m interested in Python, JavaScript, web technologies and golang❤️
+- 💞️ I’m looking to collaborate on websites and Python and golang❤️
 - 📫 How to reach me: Discord: @kosty_golang
 - 🐱 My last account (but without work projects (only files)): https://github.com/LordKin2001
 
