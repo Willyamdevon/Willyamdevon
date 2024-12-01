@@ -3,7 +3,7 @@
 - 💞️ I’m looking to collaborate on websites and Python and golang❤️
 - 📫 How to reach me: Discord: @kosty_golang
 - 🐱 My last account (but without work projects (only files)): https://github.com/LordKin2001
-
+- my gitlab: https://gitlab.crja72.ru/sda120675-gmail.com
 
 
 I know 🌏:
